@@ -1,2 +1,0 @@
-# workplace
-cosas nuevas bro
